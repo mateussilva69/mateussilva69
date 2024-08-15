@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-![](https://media1.tenor.com/m/TmbNLu_okcUAAAAC/grey-matter-ben10.gif)
+![](https://media1.tenor.com/m/yd1_f8m39u4AAAAC/clash-royale.gif)
+https://media1.tenor.com/m/TmbNLu_okcUAAAAC/grey-matter-ben10.gif
